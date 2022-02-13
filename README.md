@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xesdo
 - 👀 I’m interested in ur mum
 - 🌱 I’m currently learning how to get myself out of ur mum
-- 💞️ I’m looking to collaborate on how im in ur mum
+- 💞️ I’m looking to collaborate with your sister
 - 📫 How to reach me - ur mums room
 
 <!---
